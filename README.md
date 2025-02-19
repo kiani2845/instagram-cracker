@@ -1,4 +1,4 @@
-# instagram-cracker
+# instagram-cracker-ai
 
 ✨ Introducing the Revolutionary Tool!
 
